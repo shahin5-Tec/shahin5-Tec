@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **shahiniubat99@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/shahi/OneDrive/Documents/Resume-Md.Shahin%20Hossain.pdf](file:///C:/Users/shahi/OneDrive/Documents/Resume-Md.Shahin%20Hossain.pdf)
-
 - ⚡ Fun fact **I am funny😅**
 
 <h3 align="left">Connect with me:</h3>
